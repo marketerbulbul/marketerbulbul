@@ -1,6 +1,6 @@
 ### Hi there 👋, This is Marketer Bulbul
 #### I am web designer
-![I am web designer](https://scontent.fdac5-1.fna.fbcdn.net/v/t1.6435-9/207552688_1494849297516969_4165091913271751645_n.jpg?_nc_cat=111&ccb=1-5&_nc_sid=e3f864&_nc_ohc=E47vj__KkFYAX-epbSe&_nc_ht=scontent.fdac5-1.fna&oh=f0c50b1737b840615ddf66a8e2d19834&oe=61BBA9E9)
+![I am web designer]
 
 Hi, I am Marketer Bulbul. Marketer Bulbul is a kind of personal branding name. If you want to know the details about me can search me by typing "Marketer Bulbul"
 
